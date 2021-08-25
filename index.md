@@ -43,3 +43,5 @@
 ![同心建造充满神荣耀的教会-20210808_39](https://user-images.githubusercontent.com/86972384/128682913-d85da439-4a6b-411b-bde3-e7610f1d5819.jpg)
 ![同心建造充满神荣耀的教会-20210808_40](https://user-images.githubusercontent.com/86972384/128682923-b84d70f5-a9cf-4f65-90dc-a1b72fe50095.jpg)
 ![同心建造充满神荣耀的教会-20210808_41](https://user-images.githubusercontent.com/86972384/128682572-d3e44de4-63e9-4846-9023-0adba904ffd0.jpg)
+
+## [主日证道汇总](https://nccchurch.github.io/Sermons/)
